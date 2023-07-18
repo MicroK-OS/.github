@@ -1,1 +1,1 @@
-## The MicroKosm Ecosysem
+## The MicroKosm Ecosystem
